@@ -50,4 +50,4 @@ Feel free to open issues or pull requests if you have additional tips or correct
 
 ## 📧 Contact
 
-For feedback or collaboration, reach out to Pratik Kulkarni at pratik.kulkarni7575@gmail.com.
+For feedback or collaboration, reach out to Pratik Kulkarni on LinkedIn at www.linkedin.com/in/thepratikkulkarni or Email at pratik.kulkarni7575@gmail.com.
